@@ -1,4 +1,4 @@
-## START THE REPO TO SUPPORT ME ⭐⭐⭐
+## STAR THE REPO TO SUPPORT ME ⭐⭐⭐
 
 ![image](https://github.com/k-i-o/IL2CPPBaseByKio/assets/68398653/e6687de3-e6c2-4ac9-922e-17982a81272a)
 
